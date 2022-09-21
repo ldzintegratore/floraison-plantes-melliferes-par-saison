@@ -1,6 +1,10 @@
 # Floraison des meilleures plantes mellifères par saison
 Pour nourrir les polinisateurs toute l'année.
-> Le bonheur pour une abeille est d’exister, pour l’Homme, de le savoir et de s’en émerveiller. - Jean-Yves Cousteau
+
+Source : promessedefleurs.com
+
+> Le bonheur pour une abeille est d’exister, pour l’Homme, de le savoir et de s’en émerveiller.  
+> — Jean-Yves Cousteau
 
 ## Printemps  
 
